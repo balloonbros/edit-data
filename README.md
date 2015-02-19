@@ -1,3 +1,3 @@
 # Edit data
 
-Edit data of AI · PSD on product.
+Edit data of AI・PSD of our products.
